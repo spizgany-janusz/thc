@@ -1,1 +1,1 @@
-# thc
+# Spizgany Janusz
